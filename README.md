@@ -1,6 +1,8 @@
 # Resume
 My Most Recent Resume
+
 --------------PlainText Version - 11.2---------------------
+
 Haley Currence
 Haley.Currence.Jobs@gmail.com | 704-490-1792
 4621 Dogwood Springs Lane, Apt. 207, Glen Allen, VA 23059
